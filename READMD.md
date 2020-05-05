@@ -1,1 +1,0 @@
-Animals assignment on Canvas 
